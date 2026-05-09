@@ -1,0 +1,1 @@
+# logidma-assets
